@@ -3,7 +3,7 @@ $\text{\color{#d7fefb}╭⁽ㅤㅤㅤㅤㅤ the lies are endlessㅤㅤㅤㅤㅤ 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![ezgif-8943f385d8eb0c0e](https://github.com/user-attachments/assets/37e9b3ae-d763-43ed-80ef-dd63aed85b0b)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![ezgif-8943f385d8eb0c0e](https://github.com/user-attachments/assets/37e9b3ae-d763-43ed-80ef-dd63aed85b0b)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
