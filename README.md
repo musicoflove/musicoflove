@@ -1,5 +1,5 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-$\text{\color{#d7fefb}╭⁽ㅤㅤㅤㅤㅤ the lies are endlessㅤㅤㅤㅤ ≀  . }$
+$\text{\color{#d7fefb}╭⁽ㅤㅤㅤㅤㅤ the lies are endlessㅤㅤㅤㅤㅤ ≀  . }$
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
