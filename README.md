@@ -3,6 +3,9 @@ $\text{\color{#cdb8b4}╭⁽ㅤㅤ trouble ahead... what? it's my fault?ㅤㅤ �
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <img width="2637" height="735" alt="lalala_20260308190341" src="https://github.com/user-attachments/assets/2c5afee3-01e0-4e5b-996f-a3f75019213b" />
 
+![ezgif-164976e8f838a299](https://github.com/user-attachments/assets/f7138ac1-242a-489d-9e9f-a98bebf95824)
+
+
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤ
 $\text{\color{#9c716b}vanessa ༘ 6teen}$
