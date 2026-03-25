@@ -2,9 +2,8 @@
 $\text{\color{#cdb8b4}╭⁽ㅤㅤ trouble ahead... what? it's my fault?ㅤㅤ ≀  . }$
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-<p align="center">
-<![ezgif-164976e8f838a299](https://github.com/user-attachments/assets/f7138ac1-242a-489d-9e9f-a98bebf95824)/>
-</p>
+
+<![ezgif-164976e8f838a299](https://github.com/user-attachments/assets/f7138ac1-242a-489d-9e9f-a98bebf95824/600x400/eee/aaa){ .image25percent }
 
 
 
