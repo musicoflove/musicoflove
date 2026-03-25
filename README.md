@@ -4,13 +4,6 @@ $\text{\color{#cdb8b4}╭⁽ㅤㅤ trouble ahead... what? it's my fault?ㅤㅤ �
 <img width="2637" height="735" alt="lalala_20260308190341" src="https://github.com/user-attachments/assets/2c5afee3-01e0-4e5b-996f-a3f75019213b" />
 
 
-
-https://github.com/user-attachments/assets/f9c2249a-a320-4607-aec1-77bb4bb9ef6c
-
-
-
-
-
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤ
 $\text{\color{#9c716b}vanessa ༘ 6teen}$
 
