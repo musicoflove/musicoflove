@@ -1,4 +1,3 @@
-<img width="504" height="274" alt="ezgif-66e7a430a825ed21" src="https://github.com/user-attachments/assets/9bbe6089-4942-470d-b2d7-d44f596783af" />
-
+<img width="515" height="294" alt="ezgif-6a3396e23c1943ed" src="https://github.com/user-attachments/assets/d02b15b8-ab85-437c-a4b2-ccd1a2c0f577" />
 
 wip ^_^
