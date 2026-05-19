@@ -1,5 +1,5 @@
 <p align="center">
-<img width="540" height="303" alt="ezgif-125d9aeb862effb9" src="https://github.com/user-attachments/assets/7b7b7c2a-f6fc-41e1-b999-f17b84421c51" />
+<img width="540" height="303" alt="ezgif-140535a1a32f2b31" src="https://github.com/user-attachments/assets/b36a2f92-6aab-420f-9e7b-1625daadffa0" />
   </p>
   
 wip ^_^
