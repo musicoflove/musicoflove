@@ -9,4 +9,4 @@
 </p>
 
 
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=musicoflove&label=(*ﾉωﾉ)%20&color=d992dc&style=flat" alt="musicoflove" /> </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=musicoflove&label=(*ﾉωﾉ)%20&color=a08dd5&style=flat" alt="musicoflove" /> </p>
