@@ -6,4 +6,4 @@
   <sup><a href="https://rentry.co/darlincupid">rentry</a></sup>
 </p>
 
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=musicoflove&label=૮꒰っ˕ ς꒱%20&color=a08dd5&style=flat" alt="musicoflove" /> </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=musicoflove&label=꒰ྀི%20&color=a08dd5&style=flat" alt="musicoflove" /> </p>
