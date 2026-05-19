@@ -1,4 +1,5 @@
-<img width="540" alt="ezgif-729eb45ea4bb92da" src="https://github.com/user-attachments/assets/8494facc-4053-45c5-99e9-25b55bc7928a" />
+<img width="568" height="320" alt="Новый проект 234  154957D" src="https://github.com/user-attachments/assets/dcd53e74-6608-4b4d-bce4-b97d0c3a398f" />
+
 
 
 wip ^_^
