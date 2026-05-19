@@ -1,4 +1,4 @@
-<img width="540" alt="ezgif-6c2f9cef13a1cbc3" src="https://github.com/user-attachments/assets/fffc7c13-810c-487d-aae4-c27a9664040a" />
+<img width="540" height="304" alt="sigrikaanim gif" src="https://github.com/user-attachments/assets/e0016439-c3cc-4400-bd86-a7946f593f35" />
 
 
 wip ^_^
