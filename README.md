@@ -1,4 +1,4 @@
-<img width="568" height="320" alt="klklklk" src="https://github.com/user-attachments/assets/e9700266-2610-4243-aeed-1845e81bfe51" />
+<img width="540" alt="ezgif-6c2f9cef13a1cbc3" src="https://github.com/user-attachments/assets/fffc7c13-810c-487d-aae4-c27a9664040a" />
 
 
 wip ^_^
