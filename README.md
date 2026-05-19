@@ -1,5 +1,5 @@
-<p align="center">
-<div style="background-image: url('https://github.com'); background-size: contain; background-repeat: no-repeat; width: 540px; height: 303px;" aria-label="ezgif-729eb45ea4bb92da"></div>
-</p>
+<svg width="540" height="303" viewBox="0 0 540 303" xmlns="http://w3.org">
+  <image href="https://github.com" width="540" height="303" />
+</svg>
   
 wip ^_^
