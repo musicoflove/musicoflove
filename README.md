@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://github.com/user-attachments/assets/f425dccd-765c-419f-99fb-948167afb966" alt="ezgif-729eb45ea4bb92da" style="max-width: 100%;" />
+<div style="background-image: url('https://github.com'); background-size: contain; background-repeat: no-repeat; width: 540px; height: 303px;" aria-label="ezgif-729eb45ea4bb92da"></div>
 </p>
   
 wip ^_^
