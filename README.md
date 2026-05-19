@@ -4,4 +4,4 @@
 
   ( ⸝⸝ᵕ ᵕ⸝⸝)     c+h     enc
     
-    int      𝔃     freely   𓂂   ru/eng
+   int      𝔃     freely   𓂂   ru/eng
