@@ -2,8 +2,8 @@
 <img width="670" alt="20260812130730" src="https://github.com/user-attachments/assets/69182886-23c5-49b5-8e9d-55157b3294ca" />
 </p>
 
-<p align="center">
+<p align="left">
   <sup><a href="https://rentry.co/darlincupid">rentry</a></sup>
 </p>
 
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=musicoflove&label=꒰ྀི%20&color=a08dd5&style=flat" alt="musicoflove" /> </p>
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=musicoflove&label=꒰ྀི%20&color=000000&style=flat" alt="musicoflove" /> </p>
