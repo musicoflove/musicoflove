@@ -1,5 +1,5 @@
 <p align="center">
-<img width="400" alt="20260812130730" src="https://github.com/user-attachments/assets/69182886-23c5-49b5-8e9d-55157b3294ca" /> 
+<img width="500" alt="Без названия2311_20260831140016" src="https://github.com/user-attachments/assets/27c46cc5-3d89-425c-8e6a-6c942a8164e2" />
 </p>
 <p align="center">
 <sup><a href="https://rentry.co/darlincupid"> ‿◞   ྀི reꪀtry</a></sup>
