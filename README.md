@@ -11,5 +11,5 @@
 <p align="center">
 <sup><a>ru/eng</a></sup>
  
- <p align="center"> <img src="https://komarev.com/ghpvc/?username=musicoflove&label=꒰ྀི%20&color=feacd0&style=flat" alt="musicoflove" /> </p>
+ <p align="center"> <img src="https://komarev.com/ghpvc/?username=musicoflove&label=꒰ྀི%20&color=ffb090&style=flat" alt="musicoflove" /> </p>
 
