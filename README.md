@@ -1,5 +1,5 @@
 <p align="center">
-<img width="500" alt="aayayyaya" src="https://github.com/user-attachments/assets/6fe948a5-c333-42b4-98fc-014acbb836b5" />
+<img width="500" alt="ldaskkldasklads" src="https://github.com/user-attachments/assets/ae2fa404-dc4a-421b-a4eb-8381facce0e4" />
 </p>
 <p align="center">
 <sup><a href="https://rentry.co/cutecutekisses"> ‿◞   ྀི reꪀtry</a></sup>
